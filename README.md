@@ -1,0 +1,1 @@
+# 8-sinif-matematik-spoiler-b-soru-bankasi-2022-32
